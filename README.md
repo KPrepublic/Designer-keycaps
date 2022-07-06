@@ -5,4 +5,4 @@
 - If you are interested in, please feel free to follow us on discord to follow the status
 ## NOTE
 - Here just shows basic info not for chat. 
-- If you want chat and share ideas, please join [KPrepublic Discord server](https://discord.gg/tuXDmJNYxS)
+- If you want to chat and share ideas, please join [KPrepublic Discord server](https://discord.gg/tuXDmJNYxS)
