@@ -1,0 +1,3 @@
+The figure of Tiger has a deeply and strong image in Chinese Folk custom. By adding rich culture meanings generation by generation, the image of tiger is simplified and symbolized by Chinese people for Exorcism and Benediction.
+
+As Tiger is given an image and meaning as scaring away bad evils and guarding the house, Chinese people usually make their wares and articles with a tiger face. In Folk custom, the Tiger is treated as a Child guardian. Children wear tiger-head hats and shoes, sleeps on tiger pillows. Therefore, the image of Tiger is designed powerful and lovely. It carries people’s wish to their children that to grow up like tiger and keep healthy and strong. 
