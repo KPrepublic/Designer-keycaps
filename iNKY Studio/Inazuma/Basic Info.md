@@ -22,4 +22,4 @@ The keycap will feature in Cherry Profle and contain the doubleshot and triplesh
 
 The following is the preview of the ALL-in-ONE kit
 
-[ALL IN ONE](https://cdn.shopify.com/s/files/1/2711/4238/products/GI-INAZUMAICKit.jpg?v=1656209705)
+![ALL IN ONE](https://cdn.shopify.com/s/files/1/2711/4238/products/GI-INAZUMAICKit.jpg?v=1656209705)
