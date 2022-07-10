@@ -25,7 +25,7 @@ Good design needs a good keycap, then iNKY and Domikey take hands.
 
 **SF-Lynx MOUSEPAD SPEC**
 
-- size: 900*400*4mm
+- size: 900 * 400 * 4mm
 
 - Stitched edges
 
